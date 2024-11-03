@@ -1,8 +1,8 @@
 # Bitz Net官网地址 最新入口
 
-最新地址：[https://dash.bitzconnect.com](https://j1.bnaffloop.com/#/register?code=Vu7eyHrN)
+最新地址：[https://dash.bitzconnect.com](https://j1.bnaffloop.com/#/register?code=tmjyJezD)
 
-最新地址2：[https://my.bitzconnect.com](https://my.bitzconnect.com/#/register?code=Vu7eyHrN)
+最新地址2：[https://my.bitzconnect.com](https://my.bitzconnect.com/#/register?code=tmjyJezD)
 
 > BitzNet官网跑路了吗？暂时没有。不过机场总会有跑路风险，为尽可能减少损失，选购套餐可按月支付。
 
@@ -12,11 +12,6 @@ Bitz Net机场是一个连续经营6年的老牌机场。覆盖全球 17 个国�
 
 Bitz Net对下列国家和地区的所有线路支持流媒体解锁：美国、日本、台湾、香港、新加坡、英国。
 
-## Bitz Net优惠码
-
-优惠码： easter24，所有订阅均可使用，请在下单时填写。
-
-有效期至 2024 年 4 月 1 日 23:59 分。
 
 ## 特色
 
